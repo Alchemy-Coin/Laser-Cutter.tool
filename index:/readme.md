@@ -1,0 +1,2 @@
+- [The Best Laser Engraver & Cutter to Get at ANY Budget](https://youtu.be/1KVInFhiKUM)
+- [New Laser is *DESTROYING* the competition! These projects will show you why - Creality Falcon2 40w](https://youtu.be/x_5P8BppG6w)
