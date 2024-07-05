@@ -2,3 +2,6 @@
 - [New Laser is *DESTROYING* the competition! These projects will show you why - Creality Falcon2 40w](https://youtu.be/x_5P8BppG6w)
 - [Everything You Need to Know About the K40 Chinese Laser Cutter](https://youtu.be/09NCmW545GQ)
 - [40W Chinese Laser Cutter testing](https://youtu.be/2e8EBAr5nTM)
+- [Trying to Cut Glass With Laser - 2.5w Blue Module](https://youtu.be/3laSYjA2H3Y)
+- [The most affordable 10W laser cuts 8mm ply - COMGO Z1 by Comgrow](https://youtu.be/bzH67Nif394)
+- [How to cut through double the thickness. Using 50W Chinese Laser Cutter](https://youtu.be/DQXuzTTf2QE)
