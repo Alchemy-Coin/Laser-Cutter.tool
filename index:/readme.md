@@ -1,2 +1,4 @@
 - [The Best Laser Engraver & Cutter to Get at ANY Budget](https://youtu.be/1KVInFhiKUM)
 - [New Laser is *DESTROYING* the competition! These projects will show you why - Creality Falcon2 40w](https://youtu.be/x_5P8BppG6w)
+- [Everything You Need to Know About the K40 Chinese Laser Cutter](https://youtu.be/09NCmW545GQ)
+- [40W Chinese Laser Cutter testing](https://youtu.be/2e8EBAr5nTM)
